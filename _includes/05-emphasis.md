@@ -6,10 +6,10 @@ Below is the list of a few destinations that are in my **BucketList
     - South America
     - Kenya
     - Maldives
-    - Europe
+    - Europe _(Netherlands, Switzerland)_
 
 ## **In INDIA
     - Andaman
-    - North-East (*Assam,Meghalaya)
+    - North-East _(Assam,Meghalaya)_
     - Gir and Jim Corbett
     - Uttarakhand
